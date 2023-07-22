@@ -1,1 +1,1 @@
-Hi, I'm Shun Cleopas Fang, currently an undergraduate majoring in information and computing science at Anhui University.
+Hi, I'm Shun Cleopas Fang, currently an undergraduate majoring in Information and Computing Science at Anhui University.
